@@ -1,1 +1,0 @@
-# kimmieseho.github.io

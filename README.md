@@ -1,3 +1,3 @@
 # KimmieSeHo.github.io
 
-https://www.naver.com/
+https://kimmieseho.github.io/CV.pdf
